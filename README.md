@@ -18,7 +18,7 @@
 
 [@Ilikegeodes](https://github.com/Ilikegeodes) as The Pet Stealer!
 
-[Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
+[@Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
 
@@ -33,3 +33,7 @@
 [@sweetdeathstar](https://github.com/sweetdeathstar) as Cassandra Cain!
 
 [@timstalkerdrake](https://github.com/timstalkerdrake) as Red Robin!
+
+# Others(Those who don't have GitHub):
+
+
