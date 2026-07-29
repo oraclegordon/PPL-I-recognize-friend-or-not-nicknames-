@@ -6,6 +6,8 @@
 
 [@BARTSIMPSON](https://github.com/BARTSIMPSON) as mequot!
 
+[@bumblebeecher](https://:github.com/bumblebeecher) as Karen Beecher!
+
 [@Ilikegeodes](https://github.com/Ilikegeodes) as Pet Stealer!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
