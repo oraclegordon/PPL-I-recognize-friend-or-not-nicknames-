@@ -1,3 +1,5 @@
+I add the people I friend in Pony town! 
+
 # People I friended and recognized them as:
 
 [@andtheseraphimwept](https://github.com/andtheseraphimwept) as Azure!
@@ -18,11 +20,17 @@
 
 [@Ilikegeodes](https://github.com/Ilikegeodes) as The Pet Stealer!
 
+[@ImliterallyBell](https://github.com/ImliterallyBell) as Hell!
+
+[M3gitsune](https://github.com/M3gitsune) as Jason Todd , Brutus!
+
 [@Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
 
-[@sebvsene](https://github.com/sebvsene) as Jason Todd!
+[pizzamDj](https://github.com/pizzamDj) as C00lKid
+
+[@sebvsene](https://github.com/sebvsene) as The Jason Todd!
 
 [@sketchyremorse](https://sketchyremorse) as Astrid Arkham!
 
@@ -34,6 +42,18 @@
 
 [@timstalkerdrake](https://github.com/timstalkerdrake) as Red Robin!
 
-# Others(Those who don't have GitHub):
+[@yatoeiu](https://github.com/yatoeiu) as Spider-Noir / Absolute Grayson
+
+# Others(Those who don't have GitHub) (+ Socials if there are):
+
+Chris , [tiktok!](https://www.tiktok.com/@chrissssss290?_r=1&_t=ZS-98Rq3ZhMR55) as Damian Wayne!
+
+Dante as Kori (Starfire)!
+
+'Hope'less Faith as Female Mob!
+
+A_poisoned_Star as Nightwing 
+
+
 
 
