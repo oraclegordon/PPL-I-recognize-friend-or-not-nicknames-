@@ -18,6 +18,8 @@
 
 [@Ilikegeodes](https://github.com/Ilikegeodes) as The Pet Stealer!
 
+[Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
+
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
 
 [@sebvsene](https://github.com/sebvsene) as Jason Todd!
