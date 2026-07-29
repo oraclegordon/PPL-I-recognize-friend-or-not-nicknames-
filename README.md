@@ -22,13 +22,13 @@ I add the people I friend in Pony town!
 
 [@ImliterallyBell](https://github.com/ImliterallyBell) as Hell!
 
-[M3gitsune](https://github.com/M3gitsune) as Jason Todd , Brutus!
+[@M3gitsune](https://github.com/M3gitsune) as Jason Todd , Brutus!
 
 [@Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
 
-[pizzamDj](https://github.com/pizzamDj) as C00lKid
+[@pizzamDj](https://github.com/pizzamDj) as C00lKid
 
 [@sebvsene](https://github.com/sebvsene) as The Jason Todd!
 
