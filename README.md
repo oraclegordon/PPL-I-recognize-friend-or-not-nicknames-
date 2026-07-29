@@ -30,3 +30,4 @@
 
 [@sweetdeathstar](https://github.com/sweetdeathstar) as Cassandra Cain!
 
+[@timstalkerdrake](https://github.com/timstalkerdrake) as Red Robin!
