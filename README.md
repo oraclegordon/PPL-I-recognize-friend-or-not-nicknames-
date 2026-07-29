@@ -4,7 +4,7 @@
 
 [@bannysuperman](https://github.com/bannysuperman) as Superman!
 
-[@BARTSIMPSON](https://github.com/BARTSIMPSON) as mequot!
+[@BARTSIMPSON](https://github.com/BARTSIMPSON) as Mequot!
 
 [@bumblebeecher](https://:github.com/bumblebeecher) as Karen Beecher!
 
@@ -12,14 +12,21 @@
 
 [@DontDoEvil](https://github.com/DontDoEvil) as Bats (Also Thalindor)!
 
-[@hamfoolish](https://github.com/hamfoolish) as Hal Jordan!
+[@halcest](https://github.com/halcest) as Hal Jordan!
 
-[@Ilikegeodes](https://github.com/Ilikegeodes) as Pet Stealer!
+[@hamfoolish](https://github.com/hamfoolish) as The Hal Jordan!
+
+[@Ilikegeodes](https://github.com/Ilikegeodes) as The Pet Stealer!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
 
 [@sebvsene](https://github.com/sebvsene) as Jason Todd!
 
+[@sketchyremorse](https://sketchyremorse) as Astrid Arkham!
+
 [@SorenhrtsBruslade](https://github.com/SorenhrtsBruslade) as Bruce Wayne!
 
+[@ST4RRY-N1GHT](https://github.com/ST4RRY-N1GHT) as Female Apprentice Robin!
+
+[@sweetdeathstar](https://github.com/sweetdeathstar) as Cassandra Cain!
 
