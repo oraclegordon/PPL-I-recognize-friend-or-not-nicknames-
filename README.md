@@ -12,6 +12,8 @@
 
 [@DontDoEvil](https://github.com/DontDoEvil) as Bats (Also Thalindor)!
 
+[@hamfoolish](https://github.com/hamfoolish) as Hal Jordan!
+
 [@Ilikegeodes](https://github.com/Ilikegeodes) as Pet Stealer!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
@@ -19,3 +21,5 @@
 [@sebvsene](https://github.com/sebvsene) as Jason Todd!
 
 [@SorenhrtsBruslade](https://github.com/SorenhrtsBruslade) as Bruce Wayne!
+
+
