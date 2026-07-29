@@ -8,6 +8,10 @@
 
 [@bumblebeecher](https://:github.com/bumblebeecher) as Karen Beecher!
 
+[@CRY0FFFE4R](https://github.com/CRY0FFE4R) as Jaybird
+
+[@DontDoEvil](https://github.com/DontDoEvil) as Bats (Also Thalindor)!
+
 [@Ilikegeodes](https://github.com/Ilikegeodes) as Pet Stealer!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
