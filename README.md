@@ -2,7 +2,7 @@ I add the people I friend in Pony town!
 
 # People I friended and recognized them as:
 
-[@andtheseraphimwept](https://github.com/andtheseraphimwept) as Azure!
+[@andtheseraphimwept](https://github.com/andtheseraphimwept)  as Azure!
 
 [@bannysuperman](https://github.com/bannysuperman) as Superman!
 
@@ -20,13 +20,15 @@ I add the people I friend in Pony town!
 
 [@Ilikegeodes](https://github.com/Ilikegeodes) as The Pet Stealer!
 
-[@ImliterallyBell](https://github.com/ImliterallyBell) as Hell!
+[@ImliterallyBell](https://github.com/ImliterallyBell) as Bell!
 
 [@M3gitsune](https://github.com/M3gitsune) as Jason Todd , Brutus!
 
 [@Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
 
 [@mlgkent](https://github.com/mlgkent) as Jon Kent!
+
+[@nightlessworld](https://github.com/nightlessworld) as Black Canary!
 
 [@pizzamDj](https://github.com/pizzamDj) as C00lKid
 
