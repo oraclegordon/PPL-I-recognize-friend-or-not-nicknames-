@@ -2,60 +2,67 @@ I add the people I friend in Pony town!
 
 # People I friended and recognized them as:
 
-[@andtheseraphimwept](https://github.com/andtheseraphimwept)  as Azure!
+[@andtheseraphimwept](https://github.com/andtheseraphimwept), Aspen , as Azure!
 
-[@bannysuperman](https://github.com/bannysuperman) as Superman!
+[@bannysuperman](https://github.com/bannysuperman), Banny , as Superman!
 
-[@BARTSIMPSON](https://github.com/BARTSIMPSON) as Mequot!
+[@BARTSlMPSON](https://github.com/BARTSlMPSON), Clove , as Mequot!
 
-[@bumblebeecher](https://:github.com/bumblebeecher) as Karen Beecher!
+[@bumblebeecher](https://:github.com/bumblebeecher), Leko , as Karen Beecher!
 
-[@CRY0FFFE4R](https://github.com/CRY0FFE4R) as Jaybird
+[@CRY0FFFE4R](https://github.com/CRY0FFE4R) as Jaybird!
 
-[@DontDoEvil](https://github.com/DontDoEvil) as Bats (Also Thalindor)!
+[@DontDoEvil](https://github.com/DontDoEvil), Bats , as JL Superman!
 
-[@halcest](https://github.com/halcest) as Hal Jordan!
+[@halcest](https://github.com/halcest), Rihcos , as Hal Jordan!
 
-[@hamfoolish](https://github.com/hamfoolish) as The Hal Jordan!
+[@hamfoolish](https://github.com/hamfoolish), Ham , as The Hal Jordan!
 
-[@Ilikegeodes](https://github.com/Ilikegeodes) as The Pet Stealer!
+[@Ilikegeodes](https://github.com/Ilikegeodes), Geode , as The Pet Stealer!
 
-[@ImliterallyBell](https://github.com/ImliterallyBell) as Bell!
+[@ImliterallyBell](https://github.com/ImliterallyBell), Bell , as Will!
 
-[@M3gitsune](https://github.com/M3gitsune) as Jason Todd , Brutus!
+[@jaybirdiee](https://github.com/jaybirdiee), Rihcos , as Jason Todd!
 
-[@Miguels-Obsession](https://github.com/Miguels-Obsession) as Miguel O'hara!
+[@M3gitsune](https://github.com/M3gitsune), Nova , as Jason Todd!
 
-[@mlgkent](https://github.com/mlgkent) as Jon Kent!
+[@Miguels-Obsession](https://github.com/Miguels-Obsession), Dimitrescut , as Miguel O'hara!
 
-[@nightlessworld](https://github.com/nightlessworld) as Black Canary!
+[@mlgkent](https://github.com/mlgkent), Andrej , as Jon Kent!
 
-[@pizzamDj](https://github.com/pizzamDj) as C00lKid
+[@nightlessworld](https://github.com/nightlessworld), Magda , as Black Canary!
 
-[@sebvsene](https://github.com/sebvsene) as The Jason Todd!
+[@pizzamDj](https://github.com/pizzamDj), Pizzamaki , as C00lKid!
 
-[@sketchyremorse](https://sketchyremorse) as Astrid Arkham!
+[@sebvsene](https://github.com/sebvsene), Seb , as the Jason Todd!
 
-[@SorenhrtsBruslade](https://github.com/SorenhrtsBruslade) as Bruce Wayne!
+[@sketchyremorse](https://sketchyremorse), Television , as Astrid Arkham!
 
-[@ST4RRY-N1GHT](https://github.com/ST4RRY-N1GHT) as Female Apprentice Robin!
+[@SorenhrtsBruslade](https://github.com/SorenhrtsBruslade), Soren , as Slade/Deathstroke!
 
-[@sweetdeathstar](https://github.com/sweetdeathstar) as Cassandra Cain!
+[@ST4RRY-N1GHT](https://github.com/ST4RRY-N1GHT), Star , as Female Apprentice Robin!
 
-[@timstalkerdrake](https://github.com/timstalkerdrake) as Red Robin!
+[@sweetdeathstar](https://github.com/sweetdeathstar), Ren , as Cassandra Cain!
 
-[@yatoeiu](https://github.com/yatoeiu) as Spider-Noir / Absolute Grayson
+[@timstalkerdrake](https://github.com/timstalkerdrake), Matti , as Red Robin!
+
+[@yatoeiu](https://github.com/yatoeiu), Yato , as Spider-Noir / Absolute Grayson!
 
 # Others(Those who don't have GitHub) (+ Socials if there are):
+
+A_poisoned_Star as Nightwing! 
 
 Chris , [tiktok!](https://www.tiktok.com/@chrissssss290?_r=1&_t=ZS-98Rq3ZhMR55) as Damian Wayne!
 
 Dante as Kori (Starfire)!
 
-'Hope'less Faith as Female Mob!
+'Hope'less Faith as Female Mob!!
 
-A_poisoned_Star as Nightwing 
 
+
+Kenny/Castiel as Alien Girl(Starfire!)
+
+Lavennix
 
 
 
