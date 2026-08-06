@@ -36,8 +36,6 @@ I add the people I friend in Pony town!
 
 [@sebvsene](https://github.com/sebvsene), Seb , as the Jason Todd!
 
-[@sketchyremorse](https://sketchyremorse), Television , as Astrid Arkham!
-
 [@SorenhrtsBruslade](https://github.com/SorenhrtsBruslade), Soren , as Slade/Deathstroke!
 
 [@ST4RRY-N1GHT](https://github.com/ST4RRY-N1GHT), Star , as Female Apprentice Robin!
