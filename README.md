@@ -1,6 +1,8 @@
-I add the people I friend in Pony town! 
+<sub>I add the people I friend in Pony town! </sub>
 
 # People I friended and recognized them as:
+
+##### GitHub Friends!!
 
 [@aeszz](https://github.com/aeszz), Micheal , as Superman!
 
@@ -57,6 +59,22 @@ I add the people I friend in Pony town!
 [@timstalkerdrake](https://github.com/timstalkerdrake), Matti , as Red Robin!
 
 [@yatoeiu](https://github.com/yatoeiu), Yato , as Spider-Noir / Absolute Grayson!
+
+##### Discord Friends!
+ABirdOnTheInternet , aharpyontheinternet , as Starfire!
+Ash , k1na_. , as Kate!
+Damian oilov3r , as Gambit!
+JasonTodd , kind_of_queer , as Cyclops(I think)!
+Lavennix , lavennix , as Grace!
+Nacion , Billy_batshed , as The Superior Robin!
+Rei , symphonxx_ , as Aesop!
+Soren , sorenhearts.historyxx , as Deathstroke!
+
+##### Telegram Friends!!
+
+k1dflash!
+
+
 
 
 
