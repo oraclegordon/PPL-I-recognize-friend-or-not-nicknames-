@@ -62,12 +62,19 @@
 
 ##### Discord Friends!
 ABirdOnTheInternet , aharpyontheinternet , as Starfire!
+
 Ash , k1na_. , as Kate!
+
 Damian oilov3r , as Gambit!
+
 JasonTodd , kind_of_queer , as Cyclops(I think)!
+
 Lavennix , lavennix , as Grace!
+
 Nacion , Billy_batshed , as The Superior Robin!
+
 Rei , symphonxx_ , as Aesop!
+
 Soren , sorenhearts.historyxx , as Deathstroke!
 
 ##### Telegram Friends!!
