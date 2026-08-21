@@ -6,8 +6,6 @@ I add the people I friend in Pony town!
 
 [@andtheseraphimwept](https://github.com/andtheseraphimwept), Aspen , as Azure!
 
-[@
-
 [@BARTSlMPSON](https://github.com/BARTSlMPSON), Clove , as Mequot!
 
 [@bumblebeecher](https://:github.com/bumblebeecher), Leko , as Karen Beecher!
