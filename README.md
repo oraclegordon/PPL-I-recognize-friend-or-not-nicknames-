@@ -2,17 +2,23 @@ I add the people I friend in Pony town!
 
 # People I friended and recognized them as:
 
+[@aeszz](https://github.com/aeszz), Micheal , as Superman!
+
 [@andtheseraphimwept](https://github.com/andtheseraphimwept), Aspen , as Azure!
 
-[@bannysuperman](https://github.com/bannysuperman), Banny , as Superman!
+[@
 
 [@BARTSlMPSON](https://github.com/BARTSlMPSON), Clove , as Mequot!
 
 [@bumblebeecher](https://:github.com/bumblebeecher), Leko , as Karen Beecher!
 
-[@CRY0FFFE4R](https://github.com/CRY0FFE4R) as Jaybird!
+[@CRY0FFE4R](https://github.com/CRY0FFE4R), Azzy , as Jaybird!
+
+[@djmpon](https://github.com/djmpon), Shane , as Dick Grayson!
 
 [@DontDoEvil](https://github.com/DontDoEvil), Bats , as JL Superman!
+
+[@GregSaunderss](https://github.com/GregSaunderss) , Connie , as Greg Saunders!
 
 [@halcest](https://github.com/halcest), Rihcos , as Hal Jordan!
 
@@ -26,13 +32,21 @@ I add the people I friend in Pony town!
 
 [@M3gitsune](https://github.com/M3gitsune), Nova , as Jason Todd!
 
+[mAcncheeZ00](https://github.com/mAcncheeZ00), Mac , as Damian Wayne!
+
 [@Miguels-Obsession](https://github.com/Miguels-Obsession), Dimitrescut , as Miguel O'hara!
 
 [@mlgkent](https://github.com/mlgkent), Andrej , as Jon Kent!
 
 [@nightlessworld](https://github.com/nightlessworld), Magda , as Black Canary!
 
+[@niopeuc](https://github.com/niopeuc), Noo , as Dick Grayson!
+
+[@omegamale](https://github.com/omegamale), Cassie, as Jason Todd's #1 fan!
+
 [@pizzamDj](https://github.com/pizzamDj), Pizzamaki , as C00lKid!
+
+[@royharperz](https://gitHub/royharperz), Maple , as Jason Todd!
 
 [@sebvsene](https://github.com/sebvsene), Seb , as the Jason Todd!
 
@@ -46,21 +60,7 @@ I add the people I friend in Pony town!
 
 [@yatoeiu](https://github.com/yatoeiu), Yato , as Spider-Noir / Absolute Grayson!
 
-# Others(Those who don't have GitHub) (+ Socials if there are):
 
-A_poisoned_Star as Nightwing! 
-
-Chris , [tiktok!](https://www.tiktok.com/@chrissssss290?_r=1&_t=ZS-98Rq3ZhMR55) as Damian Wayne!
-
-Dante as Kori (Starfire)!
-
-'Hope'less Faith as Female Mob!!
-
-
-
-Kenny/Castiel as Alien Girl(Starfire!)
-
-Lavennix
 
 
 
